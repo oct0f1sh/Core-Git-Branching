@@ -25,6 +25,7 @@ He took a tentative step through the door and followed the stone path overgrown 
 
 Bob met the Unicorn King who granted him magic powers.
 Bob then had his kidneys harvested and sold to a rich oil tycoon.
+After the credits it is revealed that the rich oil tycoon was the Zookeeper.
 The end.
 
 ## Cast
